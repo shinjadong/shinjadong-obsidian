@@ -1,0 +1,1 @@
+# shinjadong-obsidian
